@@ -1,0 +1,1 @@
+# G-ijduvon-tuman-2-son-Politexnikumi
